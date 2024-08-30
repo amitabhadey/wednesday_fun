@@ -1,1 +1,1 @@
-I don't like Wednesday sometimes
+Today is Thursday
