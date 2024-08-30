@@ -1,1 +1,1 @@
-Today is Friday, and we are going out tonight!
+I am not going out today
