@@ -1,1 +1,1 @@
-Today is Thursday Special!
+I am happy
