@@ -1,1 +1,1 @@
-Today is Friday
+Today is Friday, and we are going out tonight!
