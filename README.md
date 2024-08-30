@@ -1,1 +1,1 @@
-I am not going out today
+Today is Jack's birthday, be ready!
